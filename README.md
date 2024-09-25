@@ -1,13 +1,13 @@
 # Cookie Clicker Unblocked
 https://cookieclicker.blog/
 
-https://retrobowl.blog/cookie-clicker.html
+https://retrobowl.blog/
 
-https://run3.blog/cookie-clicker.html
+https://run3.blog/
 
-https://lesson1.guru/cookie-clicker.html
+https://lesson1.guru/
 
-https://lesson1.club/cookie-clicker.html
+https://classroom247.pages.dev/
 
 
 **The Phenomenon of Cookie Clicker: A Deep Dive into the Addictive World of Incremental Gaming**
